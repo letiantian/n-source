@@ -1,4 +1,4 @@
-[n的解析](http://www.letiantian.me/2015-11-06-n/)
+[n的解析](http://www.letiantian.xyz/2015-11-06-n/)
 
 ----
 
